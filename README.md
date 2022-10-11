@@ -1,1 +1,1 @@
-# EpccComputerScienceClup
+# EpccComputerScienceClub
